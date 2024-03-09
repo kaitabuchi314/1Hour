@@ -1,1 +1,1 @@
-1 Hour game made with my dad colab.
+We made a game in one hour! Me and my dad.
